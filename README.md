@@ -75,3 +75,7 @@ Encourage mentorship and leadership pipelines for women in technical roles.
 
 Maintain progress in balanced departments by reinforcing inclusive practices.
 
+# 🙋‍♀️ Builder & Creator
+Oluwafemi Joseph Oniosun  
+Entry-Level Data Analyst
+
